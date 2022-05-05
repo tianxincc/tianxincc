@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+🌱 个人主页的介绍。。
+😄 没想好怎么整，先留个坑。
